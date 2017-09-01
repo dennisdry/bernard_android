@@ -1,1 +1,0 @@
-# bernard_android
